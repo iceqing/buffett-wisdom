@@ -1,0 +1,1 @@
+[巴菲特致股东的信(1977-2023) 英文官方文档](https://www.berkshirehathaway.com/letters/letters.html)
